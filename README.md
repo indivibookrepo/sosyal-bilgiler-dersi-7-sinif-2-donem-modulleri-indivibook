@@ -1,0 +1,1 @@
+# sosyal-bilgiler-dersi-7-sinif-2-donem-modulleri-indivibook
